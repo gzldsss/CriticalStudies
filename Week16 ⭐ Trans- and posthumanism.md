@@ -19,3 +19,6 @@ In medicine, transhumanism is positive and successful because there is no one do
 Transhumanism also has its counterpart limitations. Many scientists experiment on their bodies, by implanting machinery into their bodies with many illegal acts, which I think is a destruction of their flesh itself and is not acceptable to most people. I know people who can hear ultrasound, feel the fluctuations of the moon, and see ultraviolet light by shoving machinery into their bodies, but this kind of behavior is also limited to a very small percentage of the population, and this kind of behavior does not resonate with most people, and can even make the average person wonder if they are sick in the head, but I can understand what they are doing.
 
 So I think transhumanism is a very positive idea that can lead to a healthier lifestyle and can improve human happiness, and I hope that it will continue to expand and develop.
+
+## reference
+
