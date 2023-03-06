@@ -12,7 +12,7 @@ I think that's what struck me most about transhumanism, that it allows people to
 
 This reminds me of one of my favorite cartoons, **Rick and Morty**, where Rick has his own Operation Phoenix, where he transfers his consciousness into his other flesh soaked in a petri dish after his own physical body dies so that he can escape the clutches of death once and for all and gain immortality, which is what I think of as transhumanism because I think consciousness can exist beyond the physical body.
 
-![Rick ](https://user-images.githubusercontent.com/118484191/223221961-dfa53c34-fbb9-4d50-97b8-5a32a2f5de66.png)
+![凤凰计划](https://user-images.githubusercontent.com/118484191/223224666-6f5820df-b801-46ab-b7f2-3c702785ae8e.png)
 
 In medicine, transhumanism is positive and successful because there is no one does not aspire to a healthy body and no one does not fear death, and transhumanism and medicine combined can allow one to overcome unnecessary death, slow down unnecessary illness, and make one's life easier. I have a distant relative who was blown up in the eye by a firework when he was a child, since then he has had prosthetic eyes fitted in his sockets, which can avoid some of the unnecessary uncanny stares and can allow him to live like a healthy person without any discrimination, this is what I think, the greatest thing about transhumanism, it is humanistic. Transhumanism is more likely to be achieved than posthumanism, which requires a higher level of technology to support it.
 
