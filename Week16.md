@@ -1,1 +1,15 @@
+My gut feeling after watching the film is: toughness.
 
+Victoria has a cool, steampunk-meets-cyberpunk style, glowing mechanical leg. The most impressive part of the film for me was when Victoria poked a crack in the ground with her spiky mechanical toe and danced on the smooth ground, wearing a black dress against a red background, creating a slightly eerie and beautiful image.
+
+I think this image is strong because as someone born with a disability, many people would give up on many things, like dancing, like singing, like appearing on public screens, and her film is certainly an inspiration to people with disabilities to communicate to them that we can do it too and to de-differentiate: there is really no difference between people with disabilities and those without.
+
+I think that's what struck me most about transhumanism, that it allows people to push the limits of biology, that it allows people without arms to have their own robotic arms, that it allows people with damaged legs and amputations to get up and walk, that it allows people to be pulled back from the brink of death.
+
+This reminds me of one of my favourite cartoons, Rick and Morty, where Rick has his own Phoenix Project, where he transfers his consciousness into his other flesh soaked in a petri dish after his own physical body dies, so that he can escape the clutches of death once and for all and gain immortality, which is what I think of as transhumanism, because I think consciousness can exist beyond the physical body.
+
+In medicine, transhumanism is positive and successful because there is no one who does not aspire to a healthy body and no one who does not fear death, and transhumanism and medicine combined can allow one to overcome unnecessary death, slow down unnecessary illness and make one's life easier. I have a distant relative who was blown up in the eye by a firework when he was a child, since then he has had prosthetic eyes fitted in his sockets, which can avoid some of the unnecessary uncanny stares and can allow him to live like a healthy person without any discrimination, this is what I think, the greatest thing about transhumanism, it is humanistic. Transhumanism is more likely to be achieved than posthumanism, which requires a higher level of technology to support it.
+
+Transhumanism also has its counterpart limitations. Many scientists experiment on their own bodies, by implanting machinery into their bodies with many illegal acts, which I think is a destruction of their own flesh itself and is not acceptable to most people. I know people who can hear ultrasound, feel the fluctuations of the moon and see ultraviolet light by shoving machinery into their bodies, but this kind of behaviour is also limited to a very small percentage of the population, and this kind of behaviour does not resonate with most people, and can even make the average person wonder if they are sick in the head, but I can understand what they are doing.
+
+So I think transhumanism is a very positive idea that can lead to a healthier lifestyle and can improve human happiness, and I hope that he will continue to expand and develop.
