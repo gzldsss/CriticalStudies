@@ -15,9 +15,11 @@ The combination of the look of this work and his name makes it somewhat grotesqu
 
 I looked up the author's awards on the internet. And found other works by the author.
 
-confident in forging metal, I am experimenting with infusing these ancient techniques with a contemporary outlook. I am interested in mixing other materials with my metalwork, intertwining skills, and exploring new combinations. A sense of humor and a genuine interest in connecting with people through my art plays an equally important role" is a quote from his profile, so he combines new art forms with old techniques to create this unique style of work. He is very keen to look into the crafts of the past, such as smelting or flint knapping, which I think is a very rewarding thing to do and it allows more people to see the beauty of traditional craftsmanship. It has given me a lot of inspiration to learn some of the old crafts and art styles and blend them with my style, which makes me more satisfied with my work.
+>confident in forging metal, I am experimenting with infusing these ancient techniques with a contemporary outlook. I am interested in mixing other materials with my metalwork, intertwining skills, and exploring new combinations. A sense of humor and a genuine interest in connecting with people through my art plays an equally important role.
+
+this is a quote from his profile, so he combines new art forms with old techniques to create this unique style of work. He is very keen to look into the crafts of the past, such as smelting or flint knapping, which I think is a very rewarding thing to do and it allows more people to see the beauty of traditional craftsmanship. It has given me a lot of inspiration to learn some of the old crafts and art styles and blend them with my style, which makes me more satisfied with my work.
 
 
 
-## reference
+## Reference
 Katie Louise Surridge : https://katiesurridge.com/index.php/about/
