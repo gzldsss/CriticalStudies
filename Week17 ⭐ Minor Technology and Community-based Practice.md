@@ -10,8 +10,7 @@ Low-tech solutions are often more accessible, affordable, and easier to maintain
 
 ## Low-tech Lab
 
-![QQ图片20230306200553](https://user-images.githubusercontent.com/118484191/223218853-29b672ea-9eab-4d03-8ce0-4031075357c8.png)
-
+![LTL](https://user-images.githubusercontent.com/118484191/223222066-bc8e795c-4d92-4944-ab1d-3fdfc4848fdc.png)
 
 The Low-tech Lab is a collaborative platform and community that promotes the development and use of low-tech solutions to address environmental and social challenges. It was founded in 2013 in France by a group of engineers, designers, and activists who wanted to explore alternative technologies and innovative approaches that are more sustainable, accessible, and suitable for resource-poor environments.
 
