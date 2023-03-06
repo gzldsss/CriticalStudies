@@ -2,7 +2,8 @@
 
 I walked into the South London Gallery on a rainy day. The gallery was small so there were not many exhibits, so I had enough time to view these exhibits and think about them. All of the pieces in this exhibition were modern and had a distinctive personal touch.
 
-![小屋](https://user-images.githubusercontent.com/118484191/223160744-4ce3b6f8-0544-47dd-a72a-614a113ea2d9.jpg)
+![QQ图片20230306194826](https://user-images.githubusercontent.com/118484191/223215248-2ec3e566-c6b7-497d-8c55-74fdfc5fdd2c.png)
+
 
 The piece that struck me the most was an installation called **IN REAL LIFE**, a huge house covered in silver tinfoil, shaped like a Teletubbies room with a prismatic cone at the top of the house, and there was a silver table and a silver chair inside. Outside there was a table with lots of Uncomplicated silver stamps on it. I like the feeling it conveys to me, it is a quirky and mysterious yet childlike piece. I like the clumsy presentation because something too delicate would not have this primitive and mysterious air. And I love anything shiny, and the silver tinsel catches my eye.
 
@@ -18,5 +19,5 @@ confident in forging metal, I am experimenting with infusing these ancient techn
 
 
 
-# reference
+## reference
 Katie Louise Surridge : https://katiesurridge.com/index.php/about/
