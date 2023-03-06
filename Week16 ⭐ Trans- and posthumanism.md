@@ -1,4 +1,4 @@
-# Transhumanism
+# Trans- and posthumanism
 
 My gut feeling after watching the film is **toughness**.
 
