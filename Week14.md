@@ -1,3 +1,5 @@
+# Literacy
+
 Literacy is an ability to read and write. Actually, we need to read and write all the time in our lives, we read and understand the meaning of words, and express our ideas by writing. Each of us should have this ability, which is essential for us to learn and work in this society, that's why we have been working on our literacy skills since primary school.
 To call computer programming a literacy means that it is a fundamental skill, which is very essential for effective communication and problem-solving in the modern world, much like reading and writing. We can read codes to understand its meaning, and we can also express our own ideas by writing a string of codes, let the computer work according to our wishes, or let others understand the meaning of our codes. This means that we need more people to understand programming and to learn it. And the popularization of programming literacy will allow all walks of life to have faster efficiency and will promote the development of the entire society.
 
@@ -7,4 +9,3 @@ In my opinion, as automation continues to increase across industries, understand
 And the demand for skilled programmers is growing, and learning to code can open up career opportunities in a variety of fields, including tech, finance, and healthcare.
 For example, just like in the arts, when a painter can program, or even when a musician can program, they will be able to make more integrated, more novel works, and they will be able to combine their artworks with programming to produce more unexpected results.
 But I think it is unrealistic for everyone to learn to code. In China, there are remote areas where they do not have access to formal education or even a computer. Exposing them to programming is a very difficult thing to do. With the huge imbalance in social resources, "code for everyone" can only be achieved by some people. We still need to work on it.
-
