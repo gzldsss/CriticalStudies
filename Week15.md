@@ -1,8 +1,12 @@
-I walked into this gallery on a rainy day. The gallery was small and there were not many exhibits, so I could take my time to view the works. All the pieces in this exhibition were very modern and had a distinctive personal touch.
+I walked into the South London Gallery on a rainy day. The gallery was small and there were not many exhibits, so I had enough time to view the exhibits and think about them. All the pieces in this exhibition were really modern and had a distinctive personal touch.
 
-The piece that struck me the most was an installation called IN REAL LIFE, a huge house covered in silver tinfoil, shaped like a Teletubbies room with a protruding Teletubbies-like prism at the top of the house and a silver table and chairs inside. Outside there is a table with a delicate silver stamp on it. I like the feeling it conveys to me, for me it is a quirky and mysterious yet childlike piece. I like the clumsy presentation because something too delicate would not have this primitive and mysterious air. And I love anything shiny, and the silver tinsel really catches my eye.
+![小屋](https://user-images.githubusercontent.com/118484191/223160744-4ce3b6f8-0544-47dd-a72a-614a113ea2d9.jpg)
+
+The piece that struck me the most was an installation called IN REAL LIFE, a huge house covered in silver tinfoil, shaped like a Teletubbies room with a prismatic cone at the top of the house, and there was a silver table and a silver chair inside. Outside there was a table with lots of delicate silver stamps on it. I like the feeling it conveys to me, for me it is a quirky and mysterious yet childlike piece. I like the clumsy presentation because something too delicate would not have this primitive and mysterious air. And I love anything shiny, and the silver tinsel really catches my eyes.
 
 When I see it I can imagine a lonely hut with its lights on in a starry Arctic sky. Inside sits a creature unknown to us, which is researching its subject. Perhaps it is recording unknown cultures, engraving them into a silver seal that will record them. Or perhaps it is the last descendant of their race on this world, and it wants to leave its mark on this earth for those who come after it to discover. Perhaps he was a mad scientist who was unearthing the untold secrets of this world, and those silver stamps are all relics of his discoveries.
+
+![印章](https://user-images.githubusercontent.com/118484191/223159270-7ee1f3e5-04bb-4e07-9be0-b5614d889690.jpg)
 
 The combination of the look of this work and his name makes it somewhat grotesque, as it does not look like a building that exists in real life. So this work gives me a little more of a feeling of loneliness, and the fact that it is placed in the centre of the gallery makes it even more lonely. It is more like an inner world than a reality, the inner world of a lonely, quiet, somewhat out-of-touch person.
 
