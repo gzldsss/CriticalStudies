@@ -1,3 +1,5 @@
+# After viewing the exhibition
+
 Dalí is an artist I really like and I have seen a lot of Dalí's work through this exhibition, which has moved me.
 I really like his work, his paintings are surrealistic, they give me a lot of scope for imagination, I like the grotesque, I like his whimsicality. And I love the colours of his paintings, they are just right, not too strong and not too light, they have the beauty of combining classical and modern. Also his sculptures are very creative, in fact I like all his work very much.
 So when I saw his Mae West Lips sofa, I was pleasantly surprised. I really like the shape of the sofa and when a sexy red lip is scaled up to the size of a sofa, it is a very visually striking design. The design is playful, whimsical and provocative, reflecting the surrealist movement that Dalí was involved in.
@@ -7,4 +9,3 @@ Although the exhibition showed me many valuable works of art, I think the exhibi
 Another reason why I think it is not good enough is that the exhibits are things that I used to study as an undergraduate, so they don't feel very fresh and compared to the modernist works at the Tate Museum, they don't seem as mysterious.
 
 Overall I think the exhibition taught me something and the visit was worthwhile.
-
