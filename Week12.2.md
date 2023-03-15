@@ -1,4 +1,6 @@
-The year is 3165, and humanity has finally accomplished its greatest feat yet: the creation of a new space station, one that would serve as a home for all those who dared to venture into the unknown. The station, aptly named "New Treasure, " was unlike any other that had come before it. 
+# New Treasure
+
+In the past 3000 years, and humanity has finally accomplished its greatest feat yet: the creation of a new space station, one that would serve as a home for all those who dared to venture into the unknown. The station, aptly named "New Treasure, " was unlike any other that had come before it. 
 
 The technology on board New Treasure was a marvel of crip technoscience, designed to cater to the needs of all its inhabitants, regardless of their abilities or limitations. The station's artificial intelligence system, named "Aurora", was programmed with advanced algorithms that advanced to the individual needs of each crew member, be it providing Braille or audio descriptions for those with visual impairments or adjusting lighting and temperature settings to suit those with sensory sensitivities.
 
