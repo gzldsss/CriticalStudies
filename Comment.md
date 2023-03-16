@@ -34,7 +34,7 @@ interaction.
 The article provides a thoughtful contemplation on the value of diversity and the strength of community. 
 It encourages readers to consider the ways in which disabilities can shape our perceptions of the world and 
 the possibilities for innovation that can arise from these differences.
-# Comment 3:
+# Comment 3
 ## Name of student who is being commented on: Liaoran Zhang
 ## Name of article: Gallery/Museum Visit
 **Link: https://git.arts.ac.uk/21024339/Critical-Theory/blob/main/week15.md**
@@ -51,4 +51,4 @@ machine learning to generate visual representations of data sets, which distingu
 artists who use digital media or data visualization in their work. In fact, I don't think that artificial 
 intelligence algorithms, digital media and data visualization are completely separated. I think they are 
 actually intertwined and fused with each other.
-Finally, thank you for this post for letting me know about such a beautiful work of art
+Finally, thank you for this post for letting me know about such a beautiful work of art!
