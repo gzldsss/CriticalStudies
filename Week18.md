@@ -1,5 +1,7 @@
 # My Stupid Handsome AI
 
+![AI](https://user-images.githubusercontent.com/118484191/225684053-85bf69c0-50dd-4369-bbf0-23c68a6d718c.png)
+
 If I were to have a "stupid" handsome AI, I would want it to have a function that would help me with my daily tasks while also making me smile. While the concept of a "stupid" handsome AI may seem like a novelty, it could still have practical uses in everyday life.
 
 One function that my "stupid" handsome AI could have is the ability to act as a personal assistant. It could help me manage my schedule, send reminders, and make appointments. However, it could do so with a lighthearted and playful tone, making the process more enjoyable. For example, it could say things like "Hey boss, time to get that work done!" or "Don't forget about that important meeting, or I'll have to give you the puppy eyes."
