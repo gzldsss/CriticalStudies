@@ -20,6 +20,7 @@ have it, my body will get better and better.
 ## Name of student who is being commented on: Yutian Wei
 ## Name of article: A chronicle of a blind man orbiting the Earth
 **Link: https://git.arts.ac.uk/22010390/Critical-Studies/blob/main/week12-2.md**
+
 I like this article so much!
 The writing style of this article is very beautiful, very substituting, and incorporates the author's deep 
 thinking, and a picture has emerged in front of my eyes.
@@ -38,6 +39,7 @@ the possibilities for innovation that can arise from these differences.
 ## Name of student who is being commented on: Liaoran Zhang
 ## Name of article: Gallery/Museum Visit
 **Link: https://git.arts.ac.uk/21024339/Critical-Theory/blob/main/week15.md**
+
 'Quantum Memories' is a very stunning art installation, thanks to this article for letting me see it. I think 
 the author has gone through a lot of thinking and answered a series of questions, and I agree with the point 
 of view of the article.
