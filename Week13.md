@@ -15,3 +15,6 @@ Although the exhibition showed me many valuable works of art, I think the exhibi
 Another reason why I think it is not good enough is that the exhibits are things that I used to study as an undergraduate, so they don't feel very fresh and compared to the modernist works at the Tate Museum, they don't seem as mysterious.
 
 Overall I think the exhibition taught me something and the visit was worthwhile.
+## Reference
+
+https://zh.wikipedia.org/zh/%E8%90%A8%E5%B0%94%E7%93%A6%E5%A4%9A%C2%B7%E8%BE%BE%E5%88%A9
