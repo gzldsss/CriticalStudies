@@ -12,6 +12,8 @@ This is the vision of Low-tech Lab.
 
 I visited the Low Tech Lab website where I could learn to make handmade toilets, make handmade yogurt, and a host of other things that I would use in my life. I think this is not only a great way to make our lives more environmentally friendly, sustainable, and back to nature, but it is also a great way to make people feel calmer, which is a great way to relieve stress and make people feel happier.
 
+![马桶](https://user-images.githubusercontent.com/118484191/225653067-88550ea7-a0ec-4681-a94f-8573c3f33c1d.png)
+
 At the same time, the Low-tech Lab is a great way to promote the idea of low-tech, get more people on board and discover that low-tech is a fun way of life, especially for people who like to do their crafts. It can also bring about better relationships, including family relationships, friendships and so on, as many things can be made with many people joining in, and when people are immersed in something together, they bond more closely.
 
 But it has its limitations, only people with a leisurely lifestyle are suited to it, and in a country where life is very fast, most people don not have the time to make something handmade. He also wants resource-poor areas to learn how to make some of the objects on this page, but there are some tools such as toilets that resource-poor areas don't even have enough money to buy the raw materials for. So I think it is geared more towards people with enough money and time rather than resource-poor areas.
