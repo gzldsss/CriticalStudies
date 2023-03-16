@@ -1,3 +1,3 @@
 # Critical Studies weekly jounal 
 
-## ⭐ The journal entries with the star emoji are the three I want to submit.
+## ⭐ The top three are my submissions.
