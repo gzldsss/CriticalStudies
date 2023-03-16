@@ -1,5 +1,11 @@
 # Minor Technology and Community-based Practice
 
+## What is low-tech?
+
+>The Low-tech Lab Not to be confused with Low-cost, Frugal Innovation, Do it yourself, Jugaad, Green-tech, or Deep tech.
+Infographic « Low-techs: Sustainably securing the essentials for all » gathering the criteria for any low-tech innovation approach Low technology (low tech; adjective forms: low-technology, low-tech, lo-tech) is simple technology, as opposed to high technology. 
+
+
 ## Low-tech Lab
 
 ![实验室](https://user-images.githubusercontent.com/118484191/223224997-b7a088ec-4da5-4cfc-8d45-7861b1d41cb3.png)
