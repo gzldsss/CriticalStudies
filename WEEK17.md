@@ -2,7 +2,7 @@
 
 ## What is low-tech?
 
->The Low-tech Lab Not to be confused with Low-cost, Frugal Innovation, Do it yourself, Jugaad, Green-tech, or Deep tech.
+>Not to be confused with Low-cost, Frugal Innovation, Do it yourself, Jugaad, Green-tech, or Deep tech.
 Infographic « Low-techs: Sustainably securing the essentials for all » gathering the criteria for any low-tech innovation approach Low technology (low tech; adjective forms: low-technology, low-tech, lo-tech) is simple technology, as opposed to high technology. 
 
 
