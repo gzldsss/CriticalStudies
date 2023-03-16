@@ -1,5 +1,10 @@
 # After viewing the exhibition
 
+Salvador Dali
+
+![Salvador Dali](https://user-images.githubusercontent.com/118484191/225624835-10d9e5be-1d39-4a4a-b1d8-bb07e0383b35.jpeg)
+
+
 Dalí is an artist I really like and I have seen a lot of Dalí's work through this exhibition, which has moved me.
 I really like his work, his paintings are surrealistic, they give me a lot of scope for imagination, I like the grotesque, I like his whimsicality. And I love the colours of his paintings, they are just right, not too strong and not too light, they have the beauty of combining classical and modern. Also his sculptures are very creative, in fact I like all his work very much.
 So when I saw his Mae West Lips sofa, I was pleasantly surprised. I really like the shape of the sofa and when a sexy red lip is scaled up to the size of a sofa, it is a very visually striking design. The design is playful, whimsical and provocative, reflecting the surrealist movement that Dalí was involved in.
